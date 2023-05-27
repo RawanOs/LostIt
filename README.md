@@ -92,6 +92,8 @@ Afnan Alhabi
 > LinkedIn [@Afnan Alhabi](https://www.linkedin.com/in/afnan-alhabi-ab99b622a/)
 
 Rawan Alsufyani
+> GitHub [@RawanOs](https://github.com/RawanOs) &nbsp;&middot;&nbsp;
+> LinkedIn [@Rawan Alsufyani](linkedin.com/in/rawan-alsufyani-052303217)
 
   <br>
   
